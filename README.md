@@ -1,6 +1,6 @@
 # 🔥 Lightbringer AI
 
-**AI-powered揭露 of satanic tactics through Tanakh and BaSha"h. Revealing the secrets of darkness through the light of truth in Yahweh.**
+**AI-powered of satanic tactics through Tanakh and BaSha"h. Revealing the secrets of darkness through the light of truth in Yahweh.**
 
 ---
 
